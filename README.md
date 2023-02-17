@@ -1,1 +1,0 @@
-# speacial-app
